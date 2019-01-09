@@ -1,0 +1,13 @@
+# praktikumhtml
+![alt text](https://github.com/Risqyta/praktikumhtml/blob/master/Screenshot%20(192).png)
+![alt text](https://github.com/Risqyta/praktikumhtml/blob/master/Screenshot%20(193).png)
+![alt text](https://github.com/Risqyta/praktikumhtml/blob/master/Screenshot%20(194).png)
+![alt text](https://github.com/Risqyta/praktikumhtml/blob/master/Screenshot%20(195).png)
+![alt text](https://github.com/Risqyta/praktikumhtml/blob/master/Screenshot%20(196).png)
+![alt text](https://github.com/Risqyta/praktikumhtml/blob/master/Screenshot%20(197).png
+![alt text](https://github.com/Risqyta/praktikumhtml/blob/master/Screenshot%20(198).png)
+![alt text](https://github.com/Risqyta/praktikumhtml/blob/master/Screenshot%20(199).png)
+![alt text](https://github.com/Risqyta/praktikumhtml/blob/master/Screenshot%20(200).png)
+![alt text](https://github.com/Risqyta/praktikumhtml/blob/master/Screenshot%20(201).png)
+![alt text](https://github.com/Risqyta/praktikumhtml/blob/master/Screenshot%20(202).png)
+![alt text](https://github.com/Risqyta/praktikumhtml/blob/master/Screenshot%20(203).png)
